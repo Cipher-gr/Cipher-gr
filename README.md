@@ -16,5 +16,6 @@
 - 📫 How to reach me:
   - --Discord:grs11k
   - --Linkedin:/gabriel-resende-da-silva-0b738726b/
+    
 -![1](https://media1.tenor.com/m/UPVOb9kg6SQAAAAd/anime-bleach.gif)
 
